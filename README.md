@@ -1,1 +1,1 @@
-This is an entry blog, still a worl in progress.
+This is an entry blog, still a work in progress.
